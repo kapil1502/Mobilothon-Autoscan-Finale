@@ -24,6 +24,6 @@ for image assessment and damage detection
 https://drive.google.com/file/d/1ACoLe0wNI14Yx83R-jLgwpeND3Wq3Fn3/view?usp=sharing
 
 ## PPT Link
-https://docs.google.com/presentation/d/1PjUcvqxVJ_2WikHRVbk5eTUZwl-2aOdGdrS_xECJ0D4/edit?pli=1#slide=id.g2e015b802aa_1_0
+https://docs.google.com/presentation/d/14SVbc6pQZf5EucdId8olU4LVrTfrFk1RLWH_sHKcI1k/edit?usp=sharing
 
 
